@@ -1,2 +1,2 @@
-# manishankar08.github.io
+# Mani Shankar
 Personal Website
